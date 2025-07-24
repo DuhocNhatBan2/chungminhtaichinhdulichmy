@@ -9,7 +9,7 @@
 # 1\. Vì sao cần chứng minh tài chính khi xin visa Mỹ?
 
 # Visa Mỹ thuộc dạng khó xin do chính sách kiểm soát nhập cảnh chặt chẽ. Đại sứ quán luôn muốn đảm bảo rằng người xin visa có mục đích du lịch rõ ràng, có đủ điều kiện tài chính để chi trả chuyến đi và không có ý định ở lại bất hợp pháp. Do đó, chứng minh tài chính không chỉ thể hiện năng lực tài chính mà còn phản ánh mức độ ràng buộc tại Việt Nam.
-
+Xem thêm: https://dichvutaichinh.vn/chung-minh-tai-chinh-du-lich-my.html
 # 
 
 # 2\. Cần chứng minh bao nhiêu là đủ?
